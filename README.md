@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @A-nkitA1Kumari
+- 👋 Hi, I’m @DEI2003342AK
 - 👀 I’m interested in ... singing , coding , graphic designing , web development
 - 🌱 I’m currently learning ...IOT
 - 💞️ I’m looking to collaborate on ...
